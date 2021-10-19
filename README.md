@@ -2,4 +2,6 @@
 
 💬 Let's discuss Algorithms
 
-📫 How to reach me: ramdhanishivam7678@gmail.com
+📫 Reach me here: ramdhanishivam7678@gmail.com
+
+<img src="https://img.icons8.com/ios/17/000000/linkedin.png"/>: https://www.linkedin.com/in/shivam-ramdhani-84b009128/
